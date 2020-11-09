@@ -1,1 +1,1 @@
-# This is a project i have been working on for the past 1 week, Enjoy!
+# R.I.P Unity Animation Project July 2020 - November 2020
